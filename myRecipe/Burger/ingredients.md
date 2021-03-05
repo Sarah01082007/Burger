@@ -1,0 +1,1 @@
+Burgers are one of the most popular snacks around the world and enjoyed by people of all age groups. The traditional Chicken Burger is prepared with a minced chicken patty placed in between the burger buns with amazing sauces and lettuce. Here is how you can make this burger recipe at home with easily explained steps.
